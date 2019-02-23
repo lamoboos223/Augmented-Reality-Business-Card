@@ -2,5 +2,5 @@
 a simple AR business card to summerize my outstand skills in one place.
 <br/ >
 <a href="https://www.youtube.com/watch?v=dSvQX8HKGTc">
-<img src="https://www.dropbox.com/s/oa32d7fn55hsijq/Business_Card.jpg?dl=0" title="Lama's Business Card" />
-</a>
+<img src="https://c.top4top.net/p_11493w8pe1.jpg" title="Lama's Business Card" />
+</a>0
